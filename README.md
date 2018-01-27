@@ -11,3 +11,14 @@
 Мои любимые сериалы: [*Breaking Bad*](http://www.esquire.com/entertainment/tv/a15063971/breaking-bad-cast-interview/), [*Black Books*](https://en.wikipedia.org/wiki/Black_Books), [*Black Mirror*](https://www.netflix.com/ru/title/70264888), [*Brooklyn 99*](http://www.brooklyn99.net). 
 Мои любимые фильмы: [**Scott Pilgrim vs. The World**](http://www.imdb.com/title/tt0446029/), [**Pulp Fiction**](http://www.imdb.com/title/tt0110912/), [**Fight Club**](http://www.imdb.com/title/tt0137523/). Мой любимый актер - [***Донал Глисон***](https://en.wikipedia.org/wiki/Domhnall_Gleeson). ![gettyimages-501692060](https://user-images.githubusercontent.com/35366952/35472142-8f384914-037a-11e8-9433-9d7a0e284feb.jpg)
 
+
+### Распорядок дня
+| ВРЕМЯ | ПЛАНЫ |
+| --- | --- |
+| 11:00 | проснуться |
+| 11:05 | убедиться в отсутствии смысла жизни |
+| 11:15 | покурить |
+| 12:00 | выползти из дома |
+| 13:40 | прийти на пары |
+| 19:00 | приползти домой |
+
