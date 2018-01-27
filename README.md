@@ -6,4 +6,5 @@
 ## Мои интересы
 Пока я жила в Нижнем Новгороде, я занималась [*танцами*](http://d4unn.ru). Больше всего я люблю [хип-хоп](https://www.youtube.com/watch?v=Kl5B6MBAntI) и [vogue](https://vk.com/videos41550556?z=video41550556_171420892%2Fpl_41550556_-2). Мой любимый художник - [***Эгон Шиле***](https://ru.wikipedia.org/wiki/Шиле,_Эгон). Моя любимая группа - [***The National***](http://www.coreentertainment.ca/events/detail/the-national). 
 Прошлым летом я была на их живом выступлении на фестивале [Haven](http://www.havenkbh.dk/en/).
-Мои любимые сериалы:[*Breaking Bad*](http://www.esquire.com/entertainment/tv/a15063971/breaking-bad-cast-interview/), [*Black Books*](https://en.wikipedia.org/wiki/Black_Books), [*Black Mirror*](https://www.netflix.com/ru/title/70264888), [*Brooklyn 99*](http://www.brooklyn99.net). 
+Мои любимые сериалы: [*Breaking Bad*](http://www.esquire.com/entertainment/tv/a15063971/breaking-bad-cast-interview/), [*Black Books*](https://en.wikipedia.org/wiki/Black_Books), [*Black Mirror*](https://www.netflix.com/ru/title/70264888), [*Brooklyn 99*](http://www.brooklyn99.net). 
+Мои любимые фильмы: [**Scott Pilgrim vs. The World**](http://www.imdb.com/title/tt0446029/), [**Pulp Fiction**](http://www.imdb.com/title/tt0110912/), [**Fight Club**](http://www.imdb.com/title/tt0137523/). 
